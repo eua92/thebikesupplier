@@ -1,1 +1,1 @@
-# eua92.github.io/thebikesupplier/index.html
+# eua92.github.io/thebikesupplier
